@@ -1,1 +1,1 @@
-Theme edited for personal use.
+PaperMod Theme edited for personal use.  
